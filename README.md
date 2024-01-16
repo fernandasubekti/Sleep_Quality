@@ -1,6 +1,6 @@
 # Woo-hoo! Time to catch some Zs and get that awesome sleep!
 
-or the best view, you can visit: https://fernandasubekti.me/woo-hoo-time-to-catch-some-zs-and-get-that-awesome-sleep
+For the best view, you can visit: https://fernandasubekti.me/woo-hoo-time-to-catch-some-zs-and-get-that-awesome-sleep
 
 ## Table of Contents
 - [Introduction](#introduction)
